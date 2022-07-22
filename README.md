@@ -4,11 +4,17 @@ HIIIIIIIIIIIIIII
 
 
 -Pro Audio
+
 -Photography
+
 -Videography
+
 -Programming (wow who wudda thought)
+
 -whatever mechanical engineering shtuff i can get on
+
 -music stuffs
+
 
 
 u can check my linktree if u want lol
