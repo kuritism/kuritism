@@ -1,4 +1,6 @@
-Making things for funs
+Tech nerd right here!!!!! <-
+
+Making things for funs here, vv inactive unless driven to make smth stupid
 
 I make music too! 
 @kuritism on IG, Spotify, Apple Music, etc!!!!
